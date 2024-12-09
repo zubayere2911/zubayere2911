@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zubayere2911
-- 👀 I’m interested in muhammad zubayer
+- 👀 I’m interested in muhammad money,skill,love
 - 🌱 I’m currently learning java script,python,graphix design
 - 💞️ I’m looking to collaborate on web and app development ,and graph design
 - 📫 How to reach me git hub
